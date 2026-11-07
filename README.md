@@ -1,1 +1,1 @@
-# gaming-zone.
+# gaming-zone
